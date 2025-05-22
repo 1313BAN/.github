@@ -1,5 +1,7 @@
 # 1313BAN Forever🤍
 
+![Image](https://github.com/user-attachments/assets/227305d5-32e4-4414-b6ed-019413723306)
+
 ## 팀 구성표
 
 <details>
